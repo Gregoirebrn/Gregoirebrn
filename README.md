@@ -1,0 +1,1 @@
+- 👋 Hi, I’m a student at 42 Lyon, actualy working on the common core.
